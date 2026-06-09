@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About The Vivid Digital:
 The Vivid Digital is a full-service digital marketing and web development agency specializing in building high-performance websites, scalable software solutions, and data-driven marketing campaigns. We help businesses grow through custom web development, SEO, PPC advertising, social media marketing, and conversion-focused digital strategies. Our goal is to combine creativity with technology to deliver measurable results and long-term brand growth.
 
 
